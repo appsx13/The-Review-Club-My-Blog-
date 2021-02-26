@@ -5,7 +5,7 @@ title: Gulabo Sitabo
 date: "2020-06-21T22:12:03.284Z"
 description: "Greed"
 ---
-
+Author - [Sourabh Singh](https://www.instagram.com/sourabhsingh282/)
 We often read the quote Greed is a permanent salevery that is best described by "Gulabo and Sitabo"
 
 Well written characters, colourful dialogues and masterful cinematography make Gulabo Sitabo a pleasant watch.
